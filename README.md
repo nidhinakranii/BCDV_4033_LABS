@@ -1,2 +1,2 @@
-LAb 1:
-https://github.com/nidhinakranii/BCDV_4033_LABS
+Lab 1:
+https://www.youtube.com/watch?v=y1zO_b7jLXA
